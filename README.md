@@ -18,5 +18,7 @@
 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎𓎐　　 ֺ 𓈒　　-16 & 25+ 𝕥hiꬼ ı̊ce (Ꭾrefer⍺bly dກı̊ .)‎ ‎‎
 
 ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎❏　　𓈒 ֺ 　　Ꭾrobably wı̊ll ꬼot 𝕥alk / ı̊n𝕥 ⍺sidꮛ ⨍rom ᧙ + ꫝ 𝓊nlesຣ ᥳᩛou 𝒹o . 
+
+ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎𓎐　　 ֺ 𓈒　　VERY VERY ໃikꫀׁׅܻly ⍺fk / 𐐫ff𝕥⍺b ! Whiຣpe᥅ 2 ı̊ntꫀׁׅܻrac𝕥 !‎
 <img width="1280" height="258" alt="image" src="https://github.com/user-attachments/assets/866da8be-0b34-4f49-b9a2-f158f08850da" />
 ‎‎<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/c6ac5b61-981a-4c05-addf-b6fa01761e79" />
